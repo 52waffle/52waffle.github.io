@@ -31,6 +31,11 @@
 10.【喵喵折】
  https://www.miaomiaozhe.com/pricehistory
 
+11.【酷安】
+ https://www.coolapk.com/apk/
+
+12.【手机乐园】
+ https://www.shouji.com.cn/
 
  【种子的Traker列表】
  https://trackerslist.com/all.txt
@@ -40,7 +45,7 @@
 1.【三楼】
  http://cdn.ws.huluxia.com/game/f3.apk
 
-2.【happymod】
+2.【HappyMod】
  http://ec.happymod.com/apkhosto/dec/aem/bkk/HappyMod-2-5-0.apk
 
 
