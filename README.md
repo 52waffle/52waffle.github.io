@@ -48,6 +48,9 @@
 2.【HappyMod】
  http://ec.happymod.com/apkhosto/dec/aem/bkk/HappyMod-2-5-0.apk
 
+3.【百度网盘】
+https://pan.baidu.com
+
 
 ## 游戏库
 1.【游侠】
