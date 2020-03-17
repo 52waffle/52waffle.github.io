@@ -84,7 +84,3 @@ https://www.coolapk.com/apk/idm.internet.download.manager.plus
 
 7.【健身女孩】
  https://fitgirl-repacks.site/
-
-【pcstory|睡沙发的网管】
- http://pcstory.ml/download/pcstory%20v4.5%202019.4.23.rar
- 
